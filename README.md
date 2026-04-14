@@ -1,0 +1,1 @@
+# Statistika-SMT2
